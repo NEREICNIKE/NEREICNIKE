@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on C#, SQL and Python<br>🌱 I’m currently learning C#, SQL, Python and C++<br>📫 How to reach me ekinciieren7@gmail.com<br>⚡ Fun fact I think ı am funny
+🔭 I’m currently working on C#, SQL and Python<br>🌱 I’m currently learning C#, SQL, Python and C++<br>📫 How to reach me ekinciieren7@gmail.com<br>⚡ Fun fact I think i am funny
 
 
 ## 🌐 Socials:
