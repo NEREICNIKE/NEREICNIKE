@@ -19,4 +19,3 @@
 [![](https://visitcount.itsvg.in/api?id=NEREICNIKE&icon=2&color=0)](https://visitcount.itsvg.in)
 
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
-![](https://i.pinimg.com/originals/ef/2d/b0/ef2db0885d94fd149a4b7914923bb2a3.gif)
